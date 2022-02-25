@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Santosh Srinivas.
-- 👀 I’m interested in entrepreneurship, organizational behavior, and organizational theory.
+- 👀 I’m an Assistant Professor at HEC Paris.
 - 📫 You can reach me at santoshbsrinivas@duck.com.
 
